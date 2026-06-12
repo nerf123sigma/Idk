@@ -16,5 +16,9 @@ dj catnip number 1 fan
 
 luv yall ! 
 
-<img width="736" height="139" alt="1000013026" src="https://github.com/user-attachments/assets/18ea7ba7-e6ab-48cd-abd0-9d869001a843" />
+︵︵︵ ๑ ♡ ๑ ︵︵︵
+
+
+credits for inspo: @dr-vanta 
+
 
